@@ -1,2 +1,2 @@
 # Coursework
-One place for coursework of course I have Taken
+One place for coursework of courses I have Taken
